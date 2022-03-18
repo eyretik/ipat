@@ -1,4 +1,4 @@
 # ipat
 I'm learning/
 I'm Russian/
-Stop War Jesus Christ is a crime
+Stop the War Jesus Christ it is a crime
